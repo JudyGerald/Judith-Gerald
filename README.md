@@ -3,14 +3,14 @@
 As custom dictates, I will jot down a few things for my birthday this year. We are getting bolder, and unapologetically ourselves.
 
 As I celebrate another trip around the sun, I find myself pausing to reflect on the woman I am becoming, acknowledging both my strides and weaknesses with a sense of pride and humility. I realised birthdays have a unique way of prompting introspection, inviting one to evaluate their journey while eagerly not forgetting to anticipate the adventures that lie ahead.
-With each passing year, I’ve learned to embrace the essence of growth—the subtle yet profound changes that shape one’s character and perspective. I must admit I stumbled, faltered, and faced challenges that tested my resilience, but through it all, I’ve emerged stronger and more resilient than before. These moments of struggle have become invaluable lessons, reminding me of my capacity for perseverance and adaptation.
+With each passing year, I have learned to embrace the essence of growth—the subtle yet profound changes that shape one’s character and perspective. I must admit I stumbled, faltered, and faced challenges that tested my resilience, but through it all, I’ve emerged stronger and more resilient than before. These moments of struggle have become invaluable lessons, reminding me of my capacity for perseverance and adaptation.
 
-Yet, alongside my achievements, I’m also keenly aware of my imperfections, the areas where I still have room to grow. While acknowledging that these weaknesses aren’t limitations but opportunities for self-improvement and personal development, I’m embracing authenticity and fostering a deeper connection with myself and those around me.
+Yet, alongside my achievements, I am also keenly aware of my imperfections, the areas where I still have room to grow. While acknowledging that these weaknesses aren’t limitations but opportunities for self-improvement and personal development, I’m embracing authenticity and fostering a deeper connection with myself and those around me.
 
 Standing at the threshold of a new year, I greet it with open arms, filled with hope and anticipation for the beautiful new season ahead. With each dawn comes the promise of fresh beginnings, the opportunity to set new goals, and the chance to continue evolving into the best version of myself. I carry with me the lessons of the past, the dreams of the future, and the gratitude for the present moment.
 
 
-So here’s to another year of growth, of challenges met with courage, of dreams pursued with determination, and of love shared with an open heart. May this birthday be a celebration of the journey—the highs and lows, the triumphs and tribulations—that have shaped me into the woman I am today. And as I blow out the candles, I make a wish for the year ahead: may it be filled with joy, laughter, and endless opportunities for growth and fulfillment.
+So here is to another year of growth, of challenges met with courage, of dreams pursued with determination, and of love shared with an open heart. May this birthday be a celebration of the journey—the highs and lows, the triumphs and tribulations—that have shaped me into the woman I am today. And as I blow out the candles, I make a wish for the year ahead: may it be filled with joy, laughter, and endless opportunities for growth and fulfillment.
 
 
 And so this year, here are a few pointers from the past year that I would be doomed if I didn’t mention:
