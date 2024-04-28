@@ -1,4 +1,5 @@
-**BirthYaY – Strides: Older, Bolder.**
+BirthYaY – Strides: Older, Bolder.
+=======
 
 As custom dictates, I will jot down a few things for my birthday this year. We are getting bolder, and unapologetically ourselves.
 
